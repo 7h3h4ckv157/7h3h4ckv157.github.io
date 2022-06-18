@@ -1,2 +1,3 @@
 # 7h3h4ckv157.github.io
-Personal website
+
+Just 4 fun :)
